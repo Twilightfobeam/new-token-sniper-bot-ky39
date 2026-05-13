@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with best new token sniper bot | liquidity-pool-analysis + multi-chain-support. Featuring liquidity-pool-analysis and multi-chain-support,
 
 
 
